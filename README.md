@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **adhikarysayandip@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gd7yE3kZbomfKnIrSZhpSylFP8NsqSRc/view](https://drive.google.com/file/d/1gd7yE3kZbomfKnIrSZhpSylFP8NsqSRc/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/12R7ycZjbQVHzrYysWCyfBut_oFR2g42z/view?usp=sharing](https://drive.google.com/file/d/12R7ycZjbQVHzrYysWCyfBut_oFR2g42z/view?usp=sharing)
 
 - ⚡ Fun fact **I have same amount of interest in Photography as well**
 
